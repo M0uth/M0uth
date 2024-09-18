@@ -26,6 +26,12 @@ Drawn by me! check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) 
 
 <p align="center"
 
+![](https://blinkies.cafe/?s=0227-birds)
+
+</p>
+
+<p align="center"
+
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/7b69d07e57bbbb7478a0b2989454fe881279a11e.gifv) ![](https://www.simpleimageresizer.com/_uploads/photos/be7f02a0/tumblr_967b97ba02efdca46e004c2115e05fc8_7c753c79_2048_5_2.jpg)
 
 </p>
