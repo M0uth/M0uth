@@ -14,7 +14,7 @@ Drawn by me! check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) 
 ![](https://web.archive.org/web/20090829111400im_/http://www.geocities.com/tecraft@sbcglobal.net/CowboyboyUp.gif)
 ![](https://64.media.tumblr.com/9a89d2e86fddcae01c77e1f6c72cd527/5f73dcc39478e4c2-9c/s75x75_c1/8f5cb592c07e62bd81e9b72930e6add59574b740.gifv)
 
-<p align="center">
+<p align="center"
 
 ![](https://web.archive.org/web/20091027001005im_/http://www.geocities.com/atticty/booprope.gif)
 
