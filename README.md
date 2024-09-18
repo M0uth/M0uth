@@ -1,7 +1,7 @@
 
 ![](https://64.media.tumblr.com/ae257885c0664ea1e1c006f7051e3797/c1d6e82fd0eaea4e-51/s2048x3072/a231ffe9b62caed0d264ea8bbdc5175a0fe37baf.pnj)
 
-<p align="center">
+<p align="center"
 
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/IMG_6437.jpg)
 
