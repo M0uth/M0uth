@@ -29,7 +29,7 @@ Drawn by me! check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) 
 
 <p align="center"
 
-![](https://web.archive.org/web/20091027001005im_/http://www.geocities.com/atticty/booprope.gif)
+![](https://web.archive.org/web/20091027001005im_/http://www.geocities.com/atticty/booprope.gif)![](https://64.media.tumblr.com/967b97ba02efdca46e004c2115e05fc8/d455cfe9c92cb64c-92/s2048x3072/7c753c796e39ab050d4d943032b6c384c8adf534.pnj)
 
 </p>
 
