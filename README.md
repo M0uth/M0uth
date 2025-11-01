@@ -3,15 +3,14 @@
 
 <p align="center"
 
-![](https://file.garden/Zm-rK-jl3x2Hb48C/IMG_6437.jpg)
+![]()
 
 </p>
 
 
 <p align="center"
 
-Drawn by me! check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) || Check out my persona heh - [Persona Info!!](https://rentry.co/KnaveHarlequin)
-
+  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) || 
 </p>
 
 
