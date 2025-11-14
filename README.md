@@ -1,5 +1,5 @@
 
-![](https://64.media.tumblr.com/ae257885c0664ea1e1c006f7051e3797/c1d6e82fd0eaea4e-51/s2048x3072/a231ffe9b62caed0d264ea8bbdc5175a0fe37baf.pnj)
+![](https://file.garden/Zm-rK-jl3x2Hb48C/Untitled607_20251105144844.png)
 
 <p align="center"
 
@@ -39,8 +39,8 @@
 
 <p align="center"
 
-![](https://web.archive.org/web/20091027001005im_/http://www.geocities.com/atticty/booprope.gif)
+![](https://file.garden/Zm-rK-jl3x2Hb48C/ezgif-12ed343b15b44a.gif)
 
 </p>
 
-![](https://64.media.tumblr.com/ba39c9472c1c7d0260af904bfaad4f6b/c1d6e82fd0eaea4e-55/s2048x3072/3c63a5d4eb9413447a1af3fc1bd227547d2e2481.pnj)
+![](https://file.garden/Zm-rK-jl3x2Hb48C/Untitled607_20251105144904.png)
