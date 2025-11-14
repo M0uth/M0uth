@@ -41,6 +41,6 @@
 
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/ezgif-12ed343b15b44a.gif)
 
-</p>
+![](https://file.garden/Zm-rK-jl3x2Hb48C/Fake_sassy1__1_-removebg-preview.png)![](https://file.garden/Zm-rK-jl3x2Hb48C/Fake_trevoga_1__old_-removebg-preview.png) </p>
 
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/Untitled607_20251105144904.png)
