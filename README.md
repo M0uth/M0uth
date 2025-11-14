@@ -32,9 +32,7 @@
 
 <p align="center"
 
-![](https://file.garden/Zm-rK-jl3x2Hb48C/7b69d07e57bbbb7478a0b2989454fe881279a11e.gifv) ![](https://www.simpleimageresizer.com/_uploads/photos/be7f02a0/tumblr_967b97ba02efdca46e004c2115e05fc8_7c753c79_2048_5_2.jpg)
-
-</p>
+![](https://file.garden/Zm-rK-jl3x2Hb48C/Fake_sassy1__1_-removebg-preview-2.png) ![](https://file.garden/Zm-rK-jl3x2Hb48C/Fake_trevoga_1__old_-removebg-preview-2.png)</p>
 
 
 <p align="center"
