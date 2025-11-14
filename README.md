@@ -24,14 +24,6 @@
 
 <p align="center"
 
-
-
-</p>
-
-</p>
-
-<p align="center"
-
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/Fake_sassy1__1_-removebg-preview-2.png) ![](https://file.garden/Zm-rK-jl3x2Hb48C/Fake_trevoga_1__old_-removebg-preview-2.png)</p>
 
 
