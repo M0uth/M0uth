@@ -10,8 +10,9 @@
 
 <p align="center"
 
-  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/)![
-](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90679696447230.jpg)![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90678448322856.jpg) </p>
+  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/)
+  
+  ![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90679696447230.jpg)![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90678448322856.jpg) </p>
 
 
 <p align="center"
@@ -21,8 +22,7 @@
 <p align="center"
 
 
-[
-](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90676868561085.gif)[](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90674981705149.gif)[](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90673229324420.gif)<p align="center"
+![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90676868561085.gif)![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90674981705149.gif)![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90673229324420.gif)<p align="center"
 
 
 
