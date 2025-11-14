@@ -39,6 +39,5 @@
 
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/ezgif-12ed343b15b44a.gif)
 
-![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90681155510927.jpg)![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90679696447230.jpg)![](https://file.garden/Zm-rK-jl3x2Hb48C/Tumblr_l_90678448322856.jpg)</p>
 
 ![](https://file.garden/Zm-rK-jl3x2Hb48C/Untitled607_20251105144904.png)
