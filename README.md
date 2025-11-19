@@ -10,7 +10,7 @@
 
 <p align="center"
 
-  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) | Trans lesbian soon to be on T !
+  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) | Trans lesbian soon to be on T ! | My art commissions are open! check out my insta, I can drew u with your F/O teehee...
 
 
 <p align="center"
