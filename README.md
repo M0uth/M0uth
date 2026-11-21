@@ -10,7 +10,7 @@
 
 <p align="center"
 
-  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) | Trans lesbian soon to be on T ! | My art commissions are open! check out my insta, I can drew u with your F/O teehee...
+  check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) | Hii you can call me Mouth or Sade. I like to draw my ocs and occasionally fanart when I'm fixated on something. Im an autistic fem transmasc lesbian!! I go by all/any pronouns. I'm an adult so interact with caution!!! Check out my spacehey!!
 
 
 <p align="center"
