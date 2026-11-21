@@ -11,6 +11,8 @@
 
   check out my instagram [M0uthh](https://www.instagram.com/m0uthh/) | Hii you can call me Mouth or Sade. I like to draw my ocs and occasionally fanart when I'm fixated on something. Im an autistic fem transmasc lesbian!! I go by all/any pronouns. I'm an adult so interact with caution!!! Check out my spacehey!!
 
+  Yes i only know abt undertale atm, ive been putting off playing deltarune to the side lmao...I dont ship mtt with anyone atm but ships feel free to int I suppose i jst wont know much abt them if its deltarune.
+
 
 <p align="center"
 
