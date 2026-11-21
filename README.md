@@ -1,5 +1,5 @@
 
-![](https://file.garden/Zm-rK-jl3x2Hb48C/Untitled868_768x115.png)
+<p align="center" ![](https://file.garden/Zm-rK-jl3x2Hb48C/Untitled868_768x115.png)
 
 <p align="center"
 
